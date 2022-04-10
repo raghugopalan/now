@@ -1,5 +1,3 @@
-## NOW
-
 -   Writing/ personal project
 -   Drawing
 
