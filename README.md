@@ -1,17 +1,13 @@
-## New post
-[A.S.](https://digitalgarden.pages.dev/as)
-
 ## NOW
 
--   Writing
-  -   personal project
+-   Writing/ personal project
 -   Drawing
 
 ### Availability for work
 
 #### Art/ Animation
 
--   Illustration: Not available
+-   Illustration: **Available**
 -   Comics: Not available
 
 #### Film
