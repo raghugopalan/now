@@ -1,5 +1,5 @@
 ## New post
-[A.S.](
+[A.S.](https://digitalgarden.pages.dev/as)
 
 ## NOW
 
