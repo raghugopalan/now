@@ -1,4 +1,4 @@
--   Writing/ personal project
+-   Writing(personal project)
 -   Drawing
 
 ### Availability for work
