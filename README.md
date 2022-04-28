@@ -1,6 +1,6 @@
 -   Writing(personal project)
 -   Drawing
-	- [Buy art as NFT](https://nft.wazirx.org/raghugopalan/)
+	- Buy art as [NFT](https://t.co/sSVJO2e4h3) see [MORE](https://linktr.ee/raghugopalan)
 
 ### Availability for work
 
