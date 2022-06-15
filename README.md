@@ -1,6 +1,5 @@
 -   Writing(personal project)
 -   Drawing
-	- Buy art as [NFT](https://t.co/sSVJO2e4h3) see [MORE](https://linktr.ee/raghugopalan)
 
 ### Availability for work
 
@@ -12,11 +11,16 @@
 #### Film
 
 -   Writing screenplay: Not available
--   Content writing for ad film: Not available
+-   Content writing for ad film: **Available**
 -   Storyboards for film: Not available
 -   Storyboards for ad film: **Available**
 -   Directing ad film: Not available
 -   Directing music video: Not available
+
+---
+
+*Buy art as [NFT](https://t.co/sSVJO2e4h3) see [MORE](https://linktr.ee/raghugopalan)*
+
 
 For more, [Contact](https://raghug.com/contact)
 
