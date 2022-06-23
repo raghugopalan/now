@@ -19,12 +19,12 @@
 
 ---
 
-*Buy art as [NFT](https://t.co/sSVJO2e4h3) see [MORE](https://linktr.ee/raghugopalan)*
+*Buy art as [NFT](https://opensea.io/raghugopalan) see [MORE](https://linktr.ee/raghugopalan)*
 
 
 For more, [Contact](https://raghug.com/contact)
 
-> *Back to [website](https://raghug.com/)*
+> Back to **[website](https://raghug.com/)**
 
 ---
 
